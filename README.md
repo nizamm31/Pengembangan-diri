@@ -17,21 +17,21 @@
 ---
 
 ### some pictures during school activities :
-
+---
 ### as assistant chairman of the school's digital magazine :
 ![mts-sunan-pandaran png](https://github.com/user-attachments/assets/5a82daab-54ab-4e9e-a505-7037949c3893)
 
-
+---
 ### as as a photographer of the class
 ![camera-strap png](https://github.com/user-attachments/assets/993d07ab-df26-4953-ba11-4fc87d0bbaf0)
 
-
+---
 ### photo studio
 ![formal-photo png](https://github.com/user-attachments/assets/69852e34-79b5-46d4-955f-d3820e3b8128)
 
 
 
----
+___
 
 ### Connect with me:
 
